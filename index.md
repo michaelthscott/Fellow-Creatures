@@ -7,7 +7,7 @@ carpenter, by name of Joseph McCoffin.
 More commonly known as Joseph the Plank.
 
 Gaunt, tall and hard in the face, he had married late in his life to a
-young, vibrant Irish girl, by the name of Mary O[']{dir="rtl"}Shroud.
+young, vibrant Irish girl, by the name of Mary O'Shroud.
 
 ✞
 
@@ -37,12 +37,12 @@ choreography of slow graceful movements, his thoughts embedded in the
 glorious majesty of the sky. From horizon to horizon, one enormous
 flower thus unfolding.
 
-[']{dir="rtl"}Mister McCoffin, sir!'
+'Mister McCoffin, sir!'
 
 Its one of the young Nayler boys swinging on the creaky gate in the
 graveyard wall.
 
-[']{dir="rtl"}They wants ya in tha Meetin.'
+'They wants ya in tha Meetin.'
 
 ✞
 
@@ -64,9 +64,9 @@ half closed, breathing in short delicate whispers, tasting the air. His
 eyes focus in the depth of her light, and Mary\'s heart leaps within her
 breast. She knew it! She just knew it! Her saviour is at hand!
 
-[']{dir="rtl"}Believe thee in destiny, lass?[']{dir="rtl"}
+'Believe thee in destiny, lass?'
 
-[']{dir="rtl"}Aye sir. I do.[']{dir="rtl"}
+'Aye sir. I do.'
 
 That was it. They soon were married.
 
@@ -122,16 +122,16 @@ Suddenly, scattering chickens, a shadow appears at the half open kitchen
 door. Her little Jesus, wide eyed, breathless. neither able to contain
 himself nor find the words to speak.
 
-[']{dir="rtl"}Mummy We! am\... It! am\... ah\...[']{dir="rtl"}
+'Mummy We! am\... It! am\... ah\...'
 
-[']{dir="rtl"}Sufferin[']{dir="rtl"} Saviours! Ye nearly had me outa me
-skin! Will yuh just take a deep breath of yerself now an[']{dir="rtl"}
-tell us what in tha name a mercy yer blethetin[']{dir="rtl"} about. Come
-let me wipe that snot of yer nose.[']{dir="rtl"}
+'Sufferin' Saviours! Ye nearly had me outa me
+skin! Will yuh just take a deep breath of yerself now an'
+tell us what in tha name a mercy yer blethetin' about. Come
+let me wipe that snot of yer nose.'
 
-[']{dir="rtl"}Oh Mummy! Oh Mummy? We saw tha footprint. We saw tha
+'Oh Mummy! Oh Mummy? We saw tha footprint. We saw tha
 footprint of Big Foot! The Abominable Big Big Hairy Man! It was this\...
-BIG\![']{dir="rtl"}
+BIG\!'
 
 With that he flings his arms open wide, straight out, to demonstrate its
 miraculous extent.
@@ -162,7 +162,7 @@ Floor cleaned, they set off in search of sunset.
 The following Sunday, midway through a placid Meeting, Joseph The Plank
 overflows.
 
-[']{dir="rtl"}Fellow creatures\...[']{dir="rtl"}
+'Fellow creatures\...'
 
 In vivid, terse progression the story is told. The spilt milk sending a
 half delighted ripple among the curious grey hats of the congregation.
@@ -173,25 +173,25 @@ of their souls.
 
 ✞
 
-[']{dir="rtl"}Here was our poor wee Jesus, the very picture of the so
+'Here was our poor wee Jesus, the very picture of the so
 called Lord.'
 
-[']{dir="rtl"}Perfection gets all the praise. Perfect love, perfect
+'Perfection gets all the praise. Perfect love, perfect
 silence, perfect peace.'
 
-[']{dir="rtl"}Oh, people of my heart. Occupants of vacant seats. Will we
+'Oh, people of my heart. Occupants of vacant seats. Will we
 find comfort in our thoughts, in our beliefs, or in our religion, if we
 don\'t first insist that that comfort shall be guaranteed. Can we risk
 to seek in our approach to God not a perfection, not an ideal, but
 simply a human, fallible companion.'
 
-[']{dir="rtl"}I believe in an imperfect god, from whom I demand no love.
+'I believe in an imperfect god, from whom I demand no love.
 My love alone for the vibrant, impulsive confusion is grace enough and
 must always be enough.'
 
-[']{dir="rtl"}I believe in Deus Interruptor, the god of interruptions.'
+'I believe in Deus Interruptor, the god of interruptions.'
 
-[']{dir="rtl"}The peace we experience in these meetings aspires to be a
+'The peace we experience in these meetings aspires to be a
 divine anomaly. An interruption of the interruptions, as when we
 momentarily succeed to engage the wandering attentions of a child. God
 can sleep passive as an infant through long centuries of slumber that
@@ -201,20 +201,20 @@ earthquake rumbling across the helpless land. God\'s reasons are our
 own. God\'s thoughts are our thoughts. An ideal can never be more than
 an impulsiveness, no matter how protracted.'
 
-[']{dir="rtl"}Does not God too feel shame in the face of her
+'Does not God too feel shame in the face of her
 impulsiveness, in the face of his impulsiveness.'
 
-[']{dir="rtl"}I believe in God simply for the sense of unreality it
+'I believe in God simply for the sense of unreality it
 gives. A stimulant, like locoweed.'
 
-[']{dir="rtl"}I believe in destiny because it feeds my sense of humour.'
+'I believe in destiny because it feeds my sense of humour.'
 
-[']{dir="rtl"}My faith is no more than enthusiastic logic.'
+'My faith is no more than enthusiastic logic.'
 
-[']{dir="rtl"}I believe in this Meeting because for me it is never
+'I believe in this Meeting because for me it is never
 silent. I come here in the same manner as I go among the trees.'
 
-[']{dir="rtl"}I believe that everything is language, and that all
+'I believe that everything is language, and that all
 language is alive. Only thus can one retain in part the vision of one\'s
 original innocence. Search equally the character of God through the full
 expanse of the Everlasting Gospel. God dwells in our experience, memory
@@ -228,14 +228,14 @@ rafters of that empty ceiling. \[\...\] One God imagining another, and
 so on, ad absurdum. By preference God dwells predominately in the
 imagination. For from there it is easier to communicate.'
 
-[']{dir="rtl"}Which is not to say that God, like any friend, is not
+'Which is not to say that God, like any friend, is not
 often inconvenient. Preoccupied with an infinitude of stories.
 Requiring, demanding even, often inopportune cooperation. But God\'s my
 friend, \[\...\] so I put up with it, and try through my devotion to
 find games for us to play together, that we might better get
 acquainted.'
 
-[']{dir="rtl"}I believe that the imagination is a real place. As real as
+'I believe that the imagination is a real place. As real as
 the air we breathe. As real as the earth beneath our feet. The
 atmosphere and core of the sphere \[\...\] that is our inner being. With
 in the heart slow currents push and break, the molten core spews forth.
@@ -243,7 +243,7 @@ Without, on the finite, endless surface, whistling winds swirl in cycles
 of configurations, now soft and gentle, now raging streaked with
 electric fire.'
 
-[']{dir="rtl"}Aye! It is pantheism I preach. Religion by analogy.'
+'Aye! It is pantheism I preach. Religion by analogy.'
 
 ✞
 
@@ -257,34 +257,33 @@ That shut him up.
 The door flies open, little Jesus, bloodied, gasping, horrible anguish
 upon his face.
 
-[']{dir="rtl"}Mummy! Daddy! Oh Daddy!'
+'Mummy! Daddy! Oh Daddy!'
 
 Chaos of Joseph coughing, choking, arms outreached to take his child,
 the assembly of Friends anxiously quizzing each other. On his knees
 Joseph begs the boy to enlighten them.
 
-[']{dir="rtl"}I was in the crapper, I sees through me spy hole Indians
+'I was in the crapper, I sees through me spy hole Indians
 ride up. Twelve of them. Mummy comes running out of the house all happy,
 running towards them. The just grabbed her. Oh Daddy they were so cruel.
 I wanted to run out. I wanted to, I wanted to. They were shouting,
 shaking her. Asking her over and over \[Iroquis for child\]. Mummy
 shouting, Bastards! Bastards! Bastards! Pounding at them with her fists.
-I wanted to run out oh Daddy I wanted to run out.[']{dir="rtl"}
+I wanted to run out oh Daddy I wanted to run out.'
 
 Breaks into uncontrollable sobbing. Suddenly goes silent.
 
-[']{dir="rtl"}She started pointing to the hill an[']{dir="rtl"}
-sayin[']{dir="rtl"} Get your father. The Indians didn[']{dir="rtl"}t
+'She started pointing to the hill an'
+sayin' Get your father. The Indians didn't
 seem to understand anything except the pointing. They dragged her up on
 the back of the leaders horse and rode off. I ran quick as I
-could.[']{dir="rtl"}
+could.'
 
 Clatter of hoofbeats. Panic stricken faces. Bolt the door. Fierce proud
 warriors on restless beasts line up before the Meeting House. A speech
-is made in Iroquis. A knife is put to Mary[']{dir="rtl"}s throat. A
+is made in Iroquis. A knife is put to Mary's throat. A
 group of Elders, Joseph hurrying ahead, attempts to parley.
-
-[']{dir="rtl"}They want Jesus. He says the child is his..[']{dir="rtl"}
+'They want Jesus. He says the child is his..'
 
 No one knew what to do, not even the Indians. They had never met before
 with such courageous passivity. Eventually the leader descends from his
