@@ -82,7 +82,7 @@ Indian boy.
 ✞
 
 From the beginning the stricter folk had thought ill of the union.
-Saying that it was undoubtedly Devil[']{dir="rtl"}s work, that she had
+Saying that it was undoubtedly Devil's work, that she had
 bewitched him with those eyes. Indeed her stubborn insistence that the
 child should be named Jesus had at first greatly fueled the accusations.
 But Joseph had stood by her, and in time it became generally agreed that
@@ -93,7 +93,7 @@ her volatile temperament an excellent friend, wife and mother.
 
 And so it was, as ever, that the world turned. Years slipped past and
 little Jesus McCoffin grew to be as lithe and as animated as the slender
-lark[']{dir="rtl"}s tongue willows that skipped endlessly in the April
+lark's tongue willows that skipped endlessly in the April
 breeze along the banks of the Glossolalia River.
 
 Before such boundless energy could rankle at the restricted confines of
@@ -142,7 +142,7 @@ miraculous extent.
 
 Too late\...
 
-Aye, in a God Almighty crash, there[']{dir="rtl"}s the jug of precious
+Aye, in a God Almighty crash, there's the jug of precious
 milk spilt across the cold stone floor.
 
 ✞
@@ -280,7 +280,7 @@ Breaks into uncontrollable sobbing. Suddenly goes silent.
 'She started pointing to the hill an'
 sayin' Get your father. The Indians didn't
 seem to understand anything except the pointing. They dragged her up on
-the back of the leaders horse and rode off. I ran quick as I
+the back of the leader's horse and rode off. I ran quick as I
 could.'
 
 Clatter of hoofbeats. Panic stricken faces. Bolt the door. Fierce proud
