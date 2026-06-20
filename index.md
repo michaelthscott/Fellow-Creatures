@@ -1,4 +1,8 @@
-![Joseph & Mary](couple.png)
+---
+layout: home
+---
+
+![Joseph McCoffin & Mary O'Shroud](couple.png)
 
 Long ago, in the early pioneer days of New World Quakerism, there dwelt
 midst the spacious heart of rural Pennsylvania, a wise old backwoods
