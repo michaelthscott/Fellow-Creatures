@@ -2,7 +2,7 @@
 layout: home
 ---
 
-![Joseph McCoffin & Mary O'Shroud](couple.png)
+![Joseph McCoffin & Mary O'Shroud](images/couple.png)
 
 Long ago, in the early pioneer days of New World Quakerism, there dwelt
 midst the spacious heart of rural Pennsylvania, a wise old backwoods
@@ -298,4 +298,4 @@ eyes settling on Jesus. He reaches in, grabbing him by the hair. Tug of
 war. Losing patience the Indians systematically slaughter every man,
 woman and child, save Jesus alone. They ride off into the sunset.
 
-![The Massacre](slaughter.png)
+![The Massacre](images/slaughter.png)
